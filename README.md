@@ -2,7 +2,7 @@
 
 CLICK HERE TO VISIT THE PAGE 👇
 
-https:
+https://vivekbhat0120.github.io/Memory_Game/
 
 CLICK HERE TO VISIT THE PAGE 👆
 
